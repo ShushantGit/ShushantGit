@@ -23,4 +23,4 @@ University of West London
 📧 001shushantkathait@gmail.com
 
 🔗 LinkedIn:
-linkedin.com/in/shushant-singh-kathait-0260a038a
+[Shushant Singh Kathait](https://www.linkedin.com/in/shushant-singh-kathait-0260a038a/)
